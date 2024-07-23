@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on fun research projects. 
 - 📫 How to reach me: shanjaliarul@gmail.com
 - 😄 Pronouns: She/ Her
-- ⚡ Fun fact: I grew up in the desert. 
+- ⚡ Fun fact: I grew up in a desert.  
 
 <!---
 shanjali9/shanjali9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
